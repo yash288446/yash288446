@@ -13,6 +13,8 @@
 
 - 📫 How to reach me **gyash366@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1OrNyCjTgbk4_vBbJGay-85TYll8BlYwy/view?usp=sharing](https://drive.google.com/file/d/1OrNyCjTgbk4_vBbJGay-85TYll8BlYwy/view?usp=sharing)
+
 - ⚡ Fun fact **I think i'm funny.**
 
 <h3 align="left">Connect with me:</h3>
